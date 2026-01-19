@@ -12,15 +12,15 @@
 
 - 💬 Ask me about **Web development, AI automation, Python, C#, JavaScript, and software architecture.**
 
-- 📫 How to reach me **contact@sajjadali.info**
+- 📫 How to reach me **contact@sajjadali.online**
 
 - ⚡ Fun fact **I love building smart tools that simplify everyday tasks—and yes, I think I’m funny too. 😄**
 
-- 👨‍💻 All of my projects are available at **[https://sajjadali.info](https://sajjadali.info)**
+- 👨‍💻 All of my projects are available at **[https://sajjadali.online](https://sajjadali.online)**
 
-- 📝 I regularly write articles on **[https://sajjadali.info](https://sajjadali.info)**
+- 📝 I regularly write articles on **[https://sajjadali.online(https://sajjadali.online)**
 
-- 📄 Know about my experiences **[https://sajjadali.info](https://sajjadali.info)**
+- 📄 Know about my experiences **[https://sajjadali.online](https://sajjadali.online)**
 
 
 <h3 align="left">Connect with me:</h3>
