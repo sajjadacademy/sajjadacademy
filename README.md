@@ -18,7 +18,7 @@
 
 - 👨‍💻 All of my projects are available at **[https://sajjadali.online](https://sajjadali.online)**
 
-- 📝 I regularly write articles on **[https://sajjadali.online(https://sajjadali.online)**
+- 📝 I regularly write articles on **[https://sajjadali.online**
 
 - 📄 Know about my experiences **[https://sajjadali.online](https://sajjadali.online)**
 
